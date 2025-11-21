@@ -4,7 +4,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ombhanushali1338&label=Profile%20views&color=0e75b6&style=flat" alt="ombhanushali1338" /> </p>
 
-- 📫 How to reach me **bhagwandasbhanushali777@gmail.com**
+- 📫 How to reach me **omb1520@gmail.com**
 
 - ⚡ Fun fact **I Started Coding at age of 10**
 
